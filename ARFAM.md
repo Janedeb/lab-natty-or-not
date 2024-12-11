@@ -12,7 +12,7 @@ Utilizei o "Leonardo AI" para criar a montagem final, por ser uma ferramenta de 
 ## 🚀 Resultados
 A figura de mãe e filha juntas a natureza.
 
-[[(https://app.leonardo.ai/canvas)
+[(https://app.leonardo.ai/canvas)]
 
 ## 💭 Reflexão
 Criar esta imagem foi uma ótima experiência, conhecer várias formas de usar a imaginação.
